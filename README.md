@@ -1,0 +1,5 @@
+## \\ RU //
+- Спасибо за установку данного автокликера! Он сделан командой @kryyaasoft (см. в телеграме)
+
+## \\ EN //
+- Thank you for installing this autoclicker! It was made by the @kryyaasoft team (see in telegram) 
